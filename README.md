@@ -1,3 +1,7 @@
-# Beginner
+Sorry RUTH RADI
 
-Hi, I'm starting this today.
+THIS is an apology made to RUTH RADI KHATEY to stop being mad at me T.T
+:(
+:(
+:(
+plich
